@@ -24,7 +24,7 @@ Members can manage their information via the "My Account" section.
 
 ## Contact Details
 
-For privacy-related inquiries or data management requests, email us at haocheng969@gmail.com.
+For privacy-related inquiries or data management requests, email us at tianwork999@gmail.com.
 
 ---
 
@@ -83,7 +83,7 @@ We retain Personal Data based on ongoing business needs, legal, tax, or accounti
 
 ## Contact Us
 
-For rights exercises or privacy policy queries, visit our Privacy Portal or email haocheng969@gmail.com.
+For rights exercises or privacy policy queries, visit our Privacy Portal or email tianwork999@gmail.com.
 
 ## Policy Changes
 
